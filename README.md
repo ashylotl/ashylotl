@@ -1,0 +1,4 @@
+- ASHLEY || ASH
+- SHE//HER THEY//THEM 
+- INTROVERTED || ❥(ゝω·✿ฺ)
+- GAMER // ARTIST 
